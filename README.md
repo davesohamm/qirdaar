@@ -1,6 +1,6 @@
 
 # Hey folks, listen up and cheer... 'cause Qirdaar is here! ❤️
-➡️ [davesohamm.github.io/qirdaar]
+➡️ [Check out - "Qirdaar" HERE!](davesohamm.github.io/qirdaar)
 
 Can you feel the buzz in the air? The drums are beating, the colors of poetry are swirling, and words are dancing in a joyous symphony... because Qirdaar has arrived!
 
