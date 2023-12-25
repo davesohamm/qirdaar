@@ -16,6 +16,4 @@ So, what are you waiting for? Dive into this labyrinth of words and lose yoursel
 
 Now, let's hear those voices roar... Long live Qirdaar!🥳
 
-Note: Don't hesitate to add your personal touch to this readme! Share a glimpse of yourself, highlight your poetic style, and speak directly to your audience. After all, the most compelling Qirdars are those that connect with the heart!
-
 Your support is my fuel! Let's embark on this journey and shape a new era of Qirdaar together!
